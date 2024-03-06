@@ -1,2 +1,2 @@
-# Clase_3
+# Curso_3
  
